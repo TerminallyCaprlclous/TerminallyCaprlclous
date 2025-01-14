@@ -1,4 +1,4 @@
-## Hi there 👋
+## How do i use this thing
 
 <!--
 **TerminallyCaprlclous/TerminallyCaprlclous** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
