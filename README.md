@@ -1,4 +1,5 @@
-## i'll wor on this later blehhhhhhhhh
+## hie idunno why i added des![gamzee-homestuck (1)](https://github.com/user-attachments/assets/119b3ba4-ec30-4239-a431-87d64bbb7d4c)
+
 
 <!--
 **TerminallyCaprlclous/TerminallyCaprlclous** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
