@@ -1,4 +1,5 @@
-## hie idunno why i added des![gamzee-homestuck (1)](https://github.com/user-attachments/assets/119b3ba4-ec30-4239-a431-87d64bbb7d4c)
+Hie!! i'm adam, also known as Gamzee! i'm a fan of Club Penguin, Hometuck,Rhythm Heaven, etc! :3 
+IWC [gamzee-homestuck (1)](https://github.com/user-attachments/assets/119b3ba4-ec30-4239-a431-87d64bbb7d4c)
 
 
 <!--
