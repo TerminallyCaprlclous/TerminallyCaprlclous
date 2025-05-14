@@ -1,5 +1,9 @@
 Hie!! i'm adam, also known as Gamzee! i'm a fan of Club Penguin, Hometuck,Rhythm Heaven, etc! :3 
-IWC [gamzee-homestuck (1)](https://github.com/user-attachments/assets/119b3ba4-ec30-4239-a431-87d64bbb7d4c)
+Taken by Aaron <33!
+IWCUID
+![tumblr_79df863e6d13e2dff6b759a9c2f326f5_111954ff_1280](https://github.com/user-attachments/assets/15e5d46c-c346-4e8d-a9dd-5a6da1ffc264)
+
+
 
 
 <!--
